@@ -1,2 +1,2 @@
-# fran.github.io
+# Frances C
 Welcome to my website!
