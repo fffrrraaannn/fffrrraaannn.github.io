@@ -1,2 +1,2 @@
-# fffrrraaannn.github.io
+# fran.github.io
 Welcome to my website!
